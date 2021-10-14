@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ShanaNeko
+- 👀 I’m interested in everything and nothing.
+- 🌱 I’m currently learning a lot.
+- 💞️ I’m looking to collaborate on something.
+- 📫 How to reach me... I don't know.
